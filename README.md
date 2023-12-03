@@ -1,0 +1,5 @@
+![1](https://github.com/FireChicks/yotube_view_analyze/assets/113798364/ab912ea8-e144-4d49-8a5e-fcf744aa51c7)
+![2](https://github.com/FireChicks/yotube_view_analyze/assets/113798364/bf3f413f-6a13-417d-8f5f-b2a1f74d3033)
+![3](https://github.com/FireChicks/yotube_view_analyze/assets/113798364/af1c84a5-40c2-4dc0-813b-93db29f5dbb7)
+![4](https://github.com/FireChicks/yotube_view_analyze/assets/113798364/37746331-59ff-4e61-ba03-a018ef1b3064)
+![5](https://github.com/FireChicks/yotube_view_analyze/assets/113798364/844c587f-bb01-4abb-9fe7-3968caf0b738)
